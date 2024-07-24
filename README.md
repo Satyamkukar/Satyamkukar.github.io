@@ -19,3 +19,10 @@
 | 19-07-2024 | Er. Kanwardeep Kalra | Er. Kalra taught us about how to represent ourself at the time of interviews and to be formal and what are soft skills which will help us to represnet ourself in a better and polished way. |
 | 19-07-2024 | Dr. Jaswinder Singh | Sir showed us many experiments related to maths and science which helped us to understand the concepts in a better way. |
 | 19-07-2024 | Prof. Sania Mehra | Prof. Mehra taught us the correct way of introducing ourself formally and helped us know ourself in a better way. |
+| 22-07-2024 | Dr. S.B.Singh | Sir helped us to know our strengths, weaknesses, goals and dreams and how we can achieve them. |
+| 22-07-2024 | Dr. Pushpinder Singh | Dr. Sir told us about his life experiences and also we got to know different ways in which people learn the things and sir told us different stories which will help us in future to be successful in our life. |
+| 23-07-2024 | Peer Interaction | They introduced us to canva, what are its benefits and we can use cnava and different types of templates and astyle our posts. |
+| 23-07-2024 | Mathematics | Solved different questions related to topic: Integration. |
+| 24-07-2024| Mr. Gauravdeep Singh| Mr. Gaurav told us his life story about his struggles and failure and how he overcome all these suitations in his life and became a successful person. He also motivated us to believe in God and never try to run off the the difficult times either we should face these and come out of the suitation with victory. |
+| 24-07-2024 | Er. Lakhveer Singh |Sir told us about what is CMT and NPTEL and how we can get minors or honours degree. |
+| 24-07-2024 | Causmic Club | In this we enjoyed various performances of our seniors and got to know various opportunities in this club and how we can join it and its benefits. |
